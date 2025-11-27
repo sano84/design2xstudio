@@ -1,1 +1,2 @@
-# design2xstudio
+The website is to showcase designs that I made with focus on art abstract and geographic maps. These images which are saved in https://www.redbubble.com/people/sano84/shop?asc=u can be used on print-on-demand products such as T-shirts, stickers, and home décor. Also, these images are available in multiple file formats, including JPG, PNG, PDF, EPS, and SVG in the following:
+https://payhip.com/design2xstudio
